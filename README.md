@@ -1,1 +1,1 @@
-A city of glass and rolling glass hills
+A city of glass and rolling grass hills
